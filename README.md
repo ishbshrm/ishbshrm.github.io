@@ -10,34 +10,34 @@
 
 ## Recent Works
 
-##### 2019
+### 2019
 
-- [Jリーグニッチな記録マン 「Ｊリーグマスコット総選挙のニッチな記録は？」](https://www.youtube.com/watch?v=UADV0hmUbDY)  | キャラクターデザイン, アニメーション, コンポジット 
-- [Jリーグニッチな記録マン 「FUJI XEROX SUPER CUPがデビューの日本人選手」](https://www.youtube.com/watch?v=JUg130IeNH0)  | キャラクターデザイン, アニメーション, コンポジット
-- [ノーリツ 「3650日とすこし」](https://www.noritz.co.jp/noritzchannel/)  | キャラクターアニメーション, コンポジット
+- [Jリーグニッチな記録マン 「Ｊリーグマスコット総選挙のニッチな記録は？」](https://www.youtube.com/watch?v=UADV0hmUbDY) : キャラクターデザイン, アニメーション, コンポジット 
+- [Jリーグニッチな記録マン 「FUJI XEROX SUPER CUPがデビューの日本人選手」](https://www.youtube.com/watch?v=JUg130IeNH0) : キャラクターデザイン, アニメーション, コンポジット
+- [ノーリツ 「3650日とすこし」](https://www.noritz.co.jp/noritzchannel/) : キャラクターアニメーション, コンポジット
 - [HAG2018横浜賞 環境創造部門 「横浜農場〜大都市にある農の魅力〜」](https://www.youtube.com/watch?v=euWBPZLpFCs&feature=youtu.be) | アニメーション素材コンポジット
-- [ミスタードーナツ タピオカドリンク「Tap！Tap！Tapioca！」篇](https://www.youtube.com/watch?v=3o3lrDLNrDw)  | 2Dアニメーション作画
-- [JR東海 「スマートEX　女子旅×青年」篇](https://www.youtube.com/watch?v=zl-jiY2Lbm4)  | ピクトグラム素材 アニメーション
-- [ももまち](https://twitter.com/momotaro_machi)  | キャラクターデザイン, 4コマ漫画作画, アニメーション, コンポジット
+- [ミスタードーナツ タピオカドリンク「Tap！Tap！Tapioca！」篇](https://www.youtube.com/watch?v=3o3lrDLNrDw) : 2Dアニメーション作画
+- [JR東海 「スマートEX　女子旅×青年」篇](https://www.youtube.com/watch?v=zl-jiY2Lbm4) : ピクトグラム素材 アニメーション
+- [ももまち](https://twitter.com/momotaro_machi) : キャラクターデザイン, 4コマ漫画作画, アニメーション, コンポジット
 - ベネッセ こどもちゃれんじ ぽけっと 2019年 11, 12月号 「かんがえる かずのはいたつやさん」| コンポジット
 - しまじろうのわお！「Yes I Can !」| コンポジット
 
-##### 2018
+### 2018
 
-- [muatsu x PorterClassic プロモーションムービー](https://www.instagram.com/p/Bdcaqqbl5vG/?taken-by=porter_classic_ginza)  | コンポジット
+- [muatsu x PorterClassic プロモーションムービー](https://www.instagram.com/p/Bdcaqqbl5vG/?taken-by=porter_classic_ginza) : コンポジット
 - [映画『巫女っちゃけん。』WEBムービー](https://www.youtube.com/watch?v=dqJc2iG-XyE) | キャラクターアニメーション, コンポジット
 - SNOOPY MUSEUM TOKYO ‏  OPアニメーション | コンポジット
 - [キョクヨー 企業CM 「みんなのキョクヨー」篇](https://www.youtube.com/watch?v=7-gvt02_3Io) | 文字アニメーション作画
 - [NHK Eテレ みんなのうた 「Gifts」](http://www.nhk.or.jp/minna/songs/MIN201808_01/)| コンポジット
-- [Jリーグニッチな記録マン 「Ｊ１で得点した日本人選手の最多苗字は！？」](https://www.youtube.com/watch?v=392NFWhtB8Q)  | キャラクターデザイン, アニメーション, コンポジット
-- [Jリーグニッチな記録マン 「世にも珍しいキーパーのゴールとは？」](https://www.youtube.com/watch?v=GrgVi_4dfHU)  | キャラクターデザイン, アニメーション, コンポジット 
-- [Jリーグニッチな記録マン 「Ｊリーグの歴史の中で最高にハッピーな選手とは！？」](https://www.youtube.com/watch?v=akEgTTGjYG0)  | キャラクターデザイン, アニメーション, コンポジット 
+- [Jリーグニッチな記録マン 「Ｊ１で得点した日本人選手の最多苗字は！？」](https://www.youtube.com/watch?v=392NFWhtB8Q) : キャラクターデザイン, アニメーション, コンポジット
+- [Jリーグニッチな記録マン 「世にも珍しいキーパーのゴールとは？」](https://www.youtube.com/watch?v=GrgVi_4dfHU) : キャラクターデザイン, アニメーション, コンポジット 
+- [Jリーグニッチな記録マン 「Ｊリーグの歴史の中で最高にハッピーな選手とは！？」](https://www.youtube.com/watch?v=akEgTTGjYG0) : キャラクターデザイン, アニメーション, コンポジット 
 - [「LIXIL×タツノコプロ」コラボムービー「留守でも荷物を受け取るんだべえ」 篇](https://youtu.be/Ef7EfXrb_rU) アニメーションパート | キャラクターアニメーション, コンポジット 
 - [「LIXIL×タツノコプロ」コラボムービー「掃除で楽をするんだべえ」 篇](https://youtu.be/biJkcPHxcRA) アニメーションパート | キャラクターアニメーション, コンポジット 
 - [「LIXIL×タツノコプロ」コラボムービー「いつも美しくなるんだべえ」 篇](https://youtu.be/P3zsNgBE4SA) アニメーションパート | キャラクターアニメーション, コンポジット 
 
 
-##### 2017
+### 2017
 
 - ベネッセ こどもちゃれんじ ぽけっと2017年1,2月号 DVD 「もりの はいたつやさん」| キャラクターアニメーション,  コンポジット
 - 東京書籍 タブレットドリル 理科 | キャラクターアニメーション, コンポジット
@@ -49,7 +49,7 @@
 - NHK Eテレ みいつけた！「カゲのオバケ」| コンポジット
 - [むかしめがね 伊豆大島編](http://www.robot.co.jp/special/mukashimegane/) | アニメーション仕上げ
 
-##### 2016
+### 2016
 
 - [旭化成 フロッシュ CM「ノンアル・ダンス篇」](http://www.asahi-kasei.co.jp/asahi/jp/news/2015/li160301.html) | エフェクトアニメーション作画
 - 鈴与商事 鈴与のでんき CM「まとめておトク！篇」 | アニメーション作画
@@ -61,7 +61,7 @@
 - SNOOPY MUSEUM TOKYO ‏  OPアニメーション | コンポジット
 - SNOOPY MUSEUM TOKYO ‏ クリスマスイルミネーション アニメーション | コンポジット
 
-##### 2015
+### 2015
 
 - [国立科学博物館「地球史ナビゲーター」](http://www.kahaku.go.jp/exhibitions/permanent/renewal2015/)| アニメーション演出, コンポジット, ほか
 - 花王 ロリエきれいスタイル WEBムービー 「パンティーチャー」 | キャラクターアニメーション
@@ -70,13 +70,13 @@
 - NHK BSプレミアム 「わたしのウチにはなんにもない」 OP | コンポジット 
 - NHK BSプレミアム 「わたしのウチにはなんにもない」 劇中アニメーション | デザイン, キャラクターアニメーション, コンポジット
 
-##### 2014
+### 2014
 
 - [NHKスペシャル シリーズ遷宮 「伊勢神宮～アマテラスの謎～」アニメーションパート](http://www6.nhk.or.jp/special/detail/index.html?aid=20140101)| アニメーション作画, コンポジット
 - ロート製薬 Chu Lip CM 「デビュー篇」 | エフェクト素材アニメーション作画
 - [東急電鉄 動画でわかるのるレージ ブラックPASMO篇](https://www.youtube.com/watch?v=kyySgVGNvdo) | キャラクターアニメーション, コンポジット
 
-##### 2013
+### 2013
 
 - [東急電鉄 動画でわかるのるレージ サービス紹介篇](https://www.youtube.com/watch?v=XTnZtpY9pu0) | キャラクターアニメーション, コンポジット
 
@@ -84,7 +84,7 @@
 
 - [東急電鉄 動画でわかるのるレージ  ふえてーる篇](https://www.youtube.com/watch?v=kYj_NymFWOg) | キャラクターアニメーション, コンポジット
 
-- 柴咲コウ  Live Tour 2013 ～neko's live 猫幸 音楽会～ ライブ映像  | ロゴタイトルアニメーション
+- 柴咲コウ  Live Tour 2013 ～neko's live 猫幸 音楽会～ ライブ映像 : ロゴタイトルアニメーション
 
 - 短編アニメーション『ゴールデンタイム』| タイトル, アニメーション仕上げ, コンポジット
 
